@@ -1,0 +1,1 @@
+# mhs-app-terms
